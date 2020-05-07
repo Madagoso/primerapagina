@@ -1,1 +1,1 @@
-Pagina del paricla
+Pagina del parcial
